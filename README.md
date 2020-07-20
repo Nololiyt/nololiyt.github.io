@@ -1,1 +1,1 @@
-[nololiyt.top](//nololiyt.top)
+[nololiyt.top](http://nololiyt.top)
